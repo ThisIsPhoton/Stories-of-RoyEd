@@ -1,6 +1,6 @@
 ## Welcome to GitHub Pages
 
-[This is a link to other htmls](ties-that-bind-4.html)
+[This is a link to other htmls](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-4.html)
 
 You can use the [editor on GitHub](https://github.com/ThisIsPhoton/Stories-of-RoyEd/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
