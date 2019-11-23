@@ -13,11 +13,8 @@
 
 A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's Day for her fell on a TUEsday, which every one knows is code for Tied Up Edward ;) Also, because I wanted to finally use this icon XD
 #### 下面是翻译！
-["Ties That Bind" - Part 1](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-1.html)
-
-["Ties That Bind" - Part 2](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-2.html)
-
-["Ties That Bind" - Part 3](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-3.html)
-
-["Ties That Bind" - Part 4](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-4.html)
+* ["Ties That Bind" - Part 1](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-1.html)
+* ["Ties That Bind" - Part 2](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-2.html)
+* ["Ties That Bind" - Part 3](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-3.html)
+* ["Ties That Bind" - Part 4](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-4.html)
 
