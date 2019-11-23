@@ -6,10 +6,10 @@
 ### CP: 焰钢 RoyEd
 ### Title: Ties That Bind
 [原文在这里！](https://cryogenia.livejournal.com/225257.html)
-*Author: cryogenia
-*Pairing: Roy/Ed
-*Rating: NC-17
-*Warnings: Bondage, spanking; d/s relations. Post-series fic, ignoring movie.
+* Author: cryogenia
+* Pairing: Roy/Ed
+* Rating: NC-17
+* Warnings: Bondage, spanking; d/s relations. Post-series fic, ignoring movie.
 
 A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's Day for her fell on a TUEsday, which every one knows is code for Tied Up Edward ;) Also, because I wanted to finally use this icon XD
 ### 以下是翻译分节链接
