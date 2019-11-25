@@ -6,13 +6,12 @@
 欢迎来玩！
 
 ### CP: 焰钢 RoyEd
-#### Title: Ties That Bind
+#### 1: Ties That Bind
 [原文在这里！](https://cryogenia.livejournal.com/225257.html)
 * Author: cryogenia
 * Pairing: Roy/Ed
 * Rating: NC-17
 * Warnings: Bondage, spanking; d/s relations. Post-series fic, ignoring movie.
-
 A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's Day for her fell on a TUEsday, which every one knows is code for Tied Up Edward ;) Also, because I wanted to finally use this icon XD
 #### 下面是翻译！
 * ["Ties That Bind" - Part 1](http://photon777.lofter.com/post/1d09dc56_1c70d358f)
@@ -20,7 +19,7 @@ A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's
 * ["Ties That Bind" - Part 3](http://photon777.lofter.com/post/1d09dc56_1c7112246)
 * ["Ties That Bind" - Part 4](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind-4.html)
 
-#### Tittle: Mere Absolution
+#### 2: Mere Absolution
 [原文在这里！](https://archiveofourown.org/works/8584720?view_adult=true)
 * Fandom:Fullmetal Alchemist - All Media Types
 * Relationship:Edward Elric/Roy Mustang
