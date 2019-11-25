@@ -29,4 +29,4 @@ A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's
 * Summary: Ed has always been too reckless for his own good.
 * Notes: For musings-of-an-introvert. A commission for musings-of-an-introvert on Tumblr! They wanted h/c and bdsm porn and I did what I could to satisfy!(find me also on tumblr at mthaytr.tumblr.com, with fic that never made it on to the AO3, and also anime geek shit :D)
 #### 下面是翻译！！
-[Mere Absolution](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
+* [Mere Absolution](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
