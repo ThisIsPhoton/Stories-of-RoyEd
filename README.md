@@ -23,3 +23,9 @@
 * Summary: Ed has always been too reckless for his own good.
 * Notes: For musings-of-an-introvert. A commission for musings-of-an-introvert on Tumblr! They wanted h/c and bdsm porn and I did what I could to satisfy!(find me also on tumblr at mthaytr.tumblr.com, with fic that never made it on to the AO3, and also anime geek shit :D)
 
+## Symbiosis
+### 这里是翻译: [Symbiosis[共生] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
+* [原文在这里！](https://archiveofourown.org/works/7216060?hide_banner=true)
+* Author: Mthaytr
+* Additional Tags: D/s, Blood KinkOrgasm, ControlOrgasm, DenialVampire AU,bloodsucking,shut up it's hot don't judge me
+* Notes: For Tierfal, polarspaz. Heyyyyy guysssss. So it's been like. A year and a half. Since I last posted a thing. Hi. I missed you. :'D I haven't been gone, just -- hibernating. I guess :'D Anyway this is the first thing of a reasonable length I've finished in god knows how long, so even though it's only moderately edited you guys get it anyway. Dedicated to Tierfal, who is a daily inspiration and blessing to me as a writer and as a human, and also to Polarspaz on Tumblr, whose vampiric au inspired this fucker. Anyway, hope you enjoy!
