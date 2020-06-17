@@ -4,7 +4,7 @@
 欢迎来玩！
 
 ---
-### <center>更新</center>
+### <center> ~*~ 更新 ~*~ </center>
 ---
 
 ###  1. 修佐 - 《时光》：[戳我](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
@@ -14,7 +14,7 @@
 * *第三次，马斯坦十分钟内只回复了他三句“嗯”以及一声漫长而微弱的烦躁叹息，休斯不得不在电话那端警觉了起来。*
 
 ---
-### <center>翻译</center>
+### <center> ~*~ 翻译 ~*~ </center>
 ---
 
 ### [1] 焰钢 - 《束缚》 - Ties That Bind
