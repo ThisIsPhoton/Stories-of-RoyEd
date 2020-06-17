@@ -17,21 +17,26 @@
 ### <center>翻译</center>
 ---
 
-### [1] 焰钢 - Ties That Bind
-* ["Ties That Bind" - by cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
+### [1] 焰钢 - 《束缚》 - Ties That Bind
+* 翻译：["Ties That Bind" - by cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
 * [原文在这里！](https://cryogenia.livejournal.com/225257.html)
 * *“我们都糟透了，不是吗？”他轻声说。罗伊觉得是时候了，爱抚并轻拍他的头发。爱德华将脸埋进罗伊腿间，发出细小的鼻音。*
 
-### [2] 焰钢 - Mere Absolution[完全赦免]
-* [Mere Absolution[完全赦免] - by Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
+### [2] 焰钢 - 《完全赦免》 - Mere Absolution
+* 翻译：[Mere Absolution - by Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
 * [原文在这里！](https://archiveofourown.org/works/8584720?view_adult=true)
 * *爱德呻吟了一声，后怕的解脱感从他的喉咙流动到每一支血管。突如其来的感觉让他惊讶：他其实没预料到自己有多么濒临破碎，直到一切如同潮涨一般袭来，将他从悬崖边冲回。*
 
-### [3] 焰钢 - Symbiosis[共生]
-* [Symbiosis[共生] - by Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
+### [3] 焰钢 - 《共生》 - Symbiosis
+* 翻译：[Symbiosis - by Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
 * [原文在这里！](https://archiveofourown.org/works/7216060?hide_banner=true)
 * *那亲吻是——浓烈的，带着铁锈味，慵懒地交缠着舌头和唾液，带着欢愉和探索。*
 
-### [4] 焰钢 - Take My Breath Away
-* [Take My Breath Away - by LadyMerlin](https://thisisphoton.github.io/Stories-of-RoyEd/TakeMyBreathAway.html)
+### [4] 焰钢 - 《带走我的呼吸》 - Take My Breath Away
+* 翻译：[Take My Breath Away - by LadyMerlin](https://thisisphoton.github.io/Stories-of-RoyEd/TakeMyBreathAway.html)
 * [原文在这里！](https://archiveofourown.org/works/22786765?view_adult=true)
+* *整个过程只花了一个晚上，还有一点点过量的红酒，就让罗伊撬开了爱德想要带进坟墓的秘密。天啊，这太令人尴尬，因为罗伊一直在谈论它，好像它是正常的可以接受得事情，好像爱德想要这样并不是个怪胎。*
+
+### [5] 焰钢 - 《优美沦陷》 - Graceful Slide
+* 翻译：[Graceful Slide - by cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/graceful-slide.html)
+* [原文在这里！](https://cryogenia.livejournal.com/237148.html)
