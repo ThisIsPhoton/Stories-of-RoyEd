@@ -3,8 +3,9 @@
 本页面持续更新中……
 欢迎来玩！
 
-
-### 更新
+---
+### <center>更新</center>
+---
 
 ###  1. [修佐 - 《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
 * *这只开始于一个吻。只是一个混杂着须后水跟汗水，阳光，操场的沙土和青草，闷热的宿舍跟午后无聊的时光。*
