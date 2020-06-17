@@ -15,8 +15,8 @@
 
 ## 历史
 
-## 1. 焰钢 - Ties That Bind 
-### 这里是翻译: ["Ties That Bind" - cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
+### 1. 焰钢 - Ties That Bind 
+* 这里是翻译: ["Ties That Bind" - cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
 * [原文在这里！](https://cryogenia.livejournal.com/225257.html)
 * Author: cryogenia
 * Pairing: Roy/Ed
@@ -24,8 +24,8 @@
 * Warnings: Bondage, spanking; d/s relations. Post-series fic, ignoring movie.
 * A/N: Happy Valentine's Day to my beloved Livewife, mikkeneko <333333 Valentine's Day for her fell on a TUEsday, which every one knows is code for Tied Up Edward ;) Also, because I wanted to finally use this icon XD
 
-## 2. 焰钢 - Mere Absolution [完全赦免]
-### 这里是翻译: [Mere Absolution[完全赦免] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
+### 2. 焰钢 - Mere Absolution [完全赦免]
+* 这里是翻译: [Mere Absolution[完全赦免] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
 * [原文在这里！](https://archiveofourown.org/works/8584720?view_adult=true)
 * Author: Mthaytr
 * Additional Tags: BDSMHurt/Comfortkink as comforteverybody's fulfilling psychological needs okpain play
@@ -33,7 +33,7 @@
 * Notes: For musings-of-an-introvert. A commission for musings-of-an-introvert on Tumblr! They wanted h/c and bdsm porn and I did what I could to satisfy!(find me also on tumblr at mthaytr.tumblr.com, with fic that never made it on to the AO3, and also anime geek shit :D)
 
 ## 3. 焰钢 - Symbiosis [共生]
-### 这里是翻译: [Symbiosis[共生] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
+* 这里是翻译: [Symbiosis[共生] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
 * [原文在这里！](https://archiveofourown.org/works/7216060?hide_banner=true)
 * Author: Mthaytr
 * Additional Tags: D/s, Blood KinkOrgasm, ControlOrgasm, DenialVampire AU,bloodsucking,shut up it's hot don't judge me
