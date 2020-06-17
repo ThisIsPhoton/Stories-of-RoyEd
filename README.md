@@ -4,7 +4,7 @@
 欢迎来玩！
 
 ---
-### <center> ~~ My fic ~~ </center>
+### <center> ~~ My Work ~~ </center>
 ---
 
 ###  1. 修佐 - 《时光》：[戳我](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
