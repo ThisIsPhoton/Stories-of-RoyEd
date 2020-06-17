@@ -19,7 +19,7 @@
 * [原文在这里！](https://cryogenia.livejournal.com/225257.html)
 * *“我们都糟透了，不是吗？”他轻声说。罗伊觉得是时候了，爱抚并轻拍他的头发。爱德华将脸埋进罗伊腿间，发出细小的鼻音。*
 
-### 2. 焰钢 - Mere Absolution [完全赦免]
+### 2. 焰钢 - Mere Absolution
 * 这里是翻译: [Mere Absolution[完全赦免] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
 * [原文在这里！](https://archiveofourown.org/works/8584720?view_adult=true)
 * *爱德呻吟了一声，后怕的解脱感从他的喉咙流动到每一支血管。突如其来的感觉让他惊讶：他其实没预料到自己有多么濒临破碎，直到一切如同潮涨一般袭来，将他从悬崖边冲回。*
