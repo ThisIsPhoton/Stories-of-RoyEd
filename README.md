@@ -12,7 +12,7 @@
 
 
 
-## 历史
+## 翻译
 
 ### 1. 焰钢 - Ties That Bind 
 * 这里是翻译: ["Ties That Bind" - cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
