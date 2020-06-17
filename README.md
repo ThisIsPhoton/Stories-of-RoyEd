@@ -7,10 +7,10 @@
 ### <center>更新</center>
 ---
 
-###  1. [修佐 - 《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
+###  1. 修佐 - 《时光》：[戳我](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
 * *这只开始于一个吻。只是一个混杂着须后水跟汗水，阳光，操场的沙土和青草，闷热的宿舍跟午后无聊的时光。*
 
-### 2. [all佐 - 《愿君入梦》](https://thisisphoton.github.io/Stories-of-RoyEd/dream.html)
+### 2. all佐 - 《愿君入梦》：[戳我](https://thisisphoton.github.io/Stories-of-RoyEd/dream.html)
 * *第三次，马斯坦十分钟内只回复了他三句“嗯”以及一声漫长而微弱的烦躁叹息，休斯不得不在电话那端警觉了起来。*
 
 ---
