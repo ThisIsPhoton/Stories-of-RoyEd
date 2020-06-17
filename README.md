@@ -24,7 +24,7 @@
 * [原文在这里！](https://archiveofourown.org/works/8584720?view_adult=true)
 * *无论他想说什么，都已经消逝在那瞬的高潮里，在他咬紧牙关仍泄出的呻吟里了。当黑色的眼眸再次睁开落在爱德身上的时候，他对上那副任性而迷糊的傻笑，他知道自己也是一样的表情。*
 
-## 3. 焰钢 - Symbiosis [共生]
+### 3. 焰钢 - Symbiosis [共生]
 * 这里是翻译: [Symbiosis[共生] - Mthaytr](https://thisisphoton.github.io/Stories-of-RoyEd/symbiosis.html)
 * [原文在这里！](https://archiveofourown.org/works/7216060?hide_banner=true)
 * *那亲吻是——浓烈的，带着铁锈味，慵懒地交缠着舌头和唾液，带着欢愉和探索。*
