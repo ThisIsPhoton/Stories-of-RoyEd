@@ -30,7 +30,7 @@
 * *罗伊很想反驳这一点。通过在相对封闭的实验室里勉强共处的一年时间，爱德华疏远旁人和讨人嫌的天赋只能和他在与人相处一段时间后逐渐变得更加疏远和讨人嫌的超自然能力相提并论。他似乎将此视作理所当然，反正周围人会因为他是个十足的天才——尽管，很不幸，是真的——而放纵他非常糟糕的反社会倾向。他看起来真的不在乎任何人的想法，感受，情感，观点，甚至存在。罗伊曾诡异地设想过当整个实验室着火的时候，爱德一个人仍然黏在显微镜上，缓慢地转动他的微调旋钮。*
 
 ### [焰钢] - [《束缚》 - Ties That Bind](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
-* [原文地址 - by cryogenia]](https://cryogenia.livejournal.com/225257.html)
+* [原文地址 - by cryogenia](https://cryogenia.livejournal.com/225257.html)
 * *“我们都糟透了，不是吗？”他轻声说。罗伊觉得是时候了，爱抚并轻拍他的头发。爱德华将脸埋进罗伊腿间，发出细小的鼻音。*
 
 ### [焰钢] - [《完全赦免》 - Mere Absolution](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
