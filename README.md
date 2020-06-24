@@ -17,14 +17,17 @@
 ### <center> ~~ 翻译 ~~ </center>
 ---
 ### [焰钢] - 《魔法游戏》 - A Wicked Game
-* 翻译：
-  * 第一章
-  * 第二章
-  * 第三章
-  * 第四章
-  * 第五章
-  * 第六章
-  * 第七章
+* 翻译：[A Wicked Game - by Tierfal](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html)
+  * [第一章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html)
+  * [第二章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/02.html)
+  * [第三章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/03.html)
+  * [第四章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/04.html)
+  * [第五章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/05.html)
+  * [第六章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/06.html)
+  * [第七章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/07.html)
+* [原文在这里](https://archiveofourown.org/works/1421449)
+* *“——人们被他的表象所迷惑，没法足够接近，去了解到他实际上是多么好的一个人。”*
+*罗伊很想反驳这一点。通过在相对封闭的实验室里勉强共处的一年时间，爱德华疏远旁人和讨人嫌的天赋只能和他在与人相处一段时间后逐渐变得更加疏远和讨人嫌的超自然能力相提并论。他似乎将此视作理所当然，反正周围人会因为他是个十足的天才——尽管，很不幸，是真的——而放纵他非常糟糕的反社会倾向。他看起来真的不在乎任何人的想法，感受，情感，观点，甚至存在。罗伊曾诡异地设想过当整个实验室着火的时候，爱德一个人仍然黏在显微镜上，缓慢地转动他的微调旋钮。*
 
 ### [焰钢] - 《束缚》 - Ties That Bind
 * 翻译：["Ties That Bind" - by cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
