@@ -18,24 +18,22 @@
 ---
 ### [焰钢] - [《魔法游戏》 - A Wicked Game](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html)
 * 章节目录：
-  | [第一章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html) |
-  | [第二章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/02.html) |
-  | [第三章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/03.html) |
-  | [第四章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/04.html) |
-  | [第五章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/05.html) |
-  | [第六章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/06.html) |
-  | [第七章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/07.html) |
+  * [第一章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html) 
+  * [第二章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/02.html) 
+  * [第三章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/03.html) 
+  * [第四章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/04.html) 
+  * [第五章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/05.html) 
+  * [第六章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/06.html) 
+  * [第七章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/07.html) 
 * [原文地址 - by Tierfal](https://archiveofourown.org/works/1421449)
 * *“——人们被他的表象所迷惑，没法足够接近，去了解到他实际上是多么好的一个人。”*
 * *罗伊很想反驳这一点。通过在相对封闭的实验室里勉强共处的一年时间，爱德华疏远旁人和讨人嫌的天赋只能和他在与人相处一段时间后逐渐变得更加疏远和讨人嫌的超自然能力相提并论。他似乎将此视作理所当然，反正周围人会因为他是个十足的天才——尽管，很不幸，是真的——而放纵他非常糟糕的反社会倾向。他看起来真的不在乎任何人的想法，感受，情感，观点，甚至存在。罗伊曾诡异地设想过当整个实验室着火的时候，爱德一个人仍然黏在显微镜上，缓慢地转动他的微调旋钮。*
 
 ### [焰钢] - [《束缚》 - Ties That Bind](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
-* 翻译：["Ties That Bind" - by cryogenia]
 * [原文地址 - by cryogenia]](https://cryogenia.livejournal.com/225257.html)
 * *“我们都糟透了，不是吗？”他轻声说。罗伊觉得是时候了，爱抚并轻拍他的头发。爱德华将脸埋进罗伊腿间，发出细小的鼻音。*
 
 ### [焰钢] - [《完全赦免》 - Mere Absolution](https://thisisphoton.github.io/Stories-of-RoyEd/mere-absolution.html)
-* 翻译：[Mere Absolution - by Mthaytr]
 * [原文地址 - by Mthaytr](https://archiveofourown.org/works/8584720?view_adult=true)
 * *爱德呻吟了一声，后怕的解脱感从他的喉咙流动到每一支血管。突如其来的感觉让他惊讶：他其实没预料到自己有多么濒临破碎，直到一切如同潮涨一般袭来，将他从悬崖边冲回。*
 
@@ -57,7 +55,6 @@
 
 <!--
 ### [6] 焰钢 - 《》 - 
-* 翻译：[]()
-* [原文在这里！]()
+* [原文地址 - by ]()
 * **
 -->
