@@ -51,7 +51,7 @@
 * [原文地址 - by cryogenia](https://cryogenia.livejournal.com/237148.html)
 * *罗伊曾指天发誓说他能像读书一般轻易读懂爱德。至少现在，爱德希望他说的是真的。罗伊的脸近在咫尺，爱德看着他微笑——那是他最最真诚的表情。*
 
-### [焰钢] - [《服从》 - Obedience] (https://thisisphoton.github.io/Stories-of-RoyEd/obedience.html)
+### [焰钢] - [《服从》 - Obedience](https://thisisphoton.github.io/Stories-of-RoyEd/obedience.html)
 * [原文地址 - by Mthaytr](https://archiveofourown.org/works/2836004)
 * *‘如果你不反对，我很想试试止吠项圈。那种狗叫的太大声就会放电的。’*
 
