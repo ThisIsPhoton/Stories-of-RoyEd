@@ -16,6 +16,15 @@
 ---
 ### <center> ~~ 翻译 ~~ </center>
 ---
+### [焰钢] - 《魔法游戏》 - A Wicked Game
+* 翻译：
+  * 第一章
+  * 第二章
+  * 第三章
+  * 第四章
+  * 第五章
+  * 第六章
+  * 第七章
 
 ### [焰钢] - 《束缚》 - Ties That Bind
 * 翻译：["Ties That Bind" - by cryogenia](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
