@@ -6,13 +6,12 @@
 
 ---
 ## <center> 目录 </center>
----
 ## [焰钢](https://thisisphoton.github.io/Stories-of-RoyEd/royed.html)
 ## [修佐](#修佐)
 ## [哈佐](#哈佐)
 
 
----
+<!--
 
 ### 修佐
 ###  [1 - 《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
@@ -25,7 +24,6 @@
 
 ---
 
-<!--
 ### 焰钢
 
 ### [7 - 《带走我的呼吸》 - Take My Breath Away](https://thisisphoton.github.io/Stories-of-RoyEd/TakeMyBreathAway.html)
