@@ -59,7 +59,7 @@
 * [原文地址 - by cryogenia](https://cryogenia.livejournal.com/237148.html)
 * *罗伊曾指天发誓说他能像读书一般轻易读懂爱德。至少现在，爱德希望他说的是真的。罗伊的脸近在咫尺，爱德看着他微笑——那是他最最真诚的表情。*
 
-### [1 - 翻译 - 《束缚》 - Ties That Bind](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
+### [1 - 《束缚》 - Ties That Bind - 翻译](https://thisisphoton.github.io/Stories-of-RoyEd/ties-that-bind.html)
 * [原文地址 - by cryogenia](https://cryogenia.livejournal.com/225257.html)
 * *“我们都糟透了，不是吗？”他轻声说。罗伊觉得是时候了，爱抚并轻拍他的头发。爱德华将脸埋进罗伊腿间，发出细小的鼻音。*
 
