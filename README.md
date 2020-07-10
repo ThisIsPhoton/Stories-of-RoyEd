@@ -12,7 +12,7 @@
 
 
 ---
-## <center> ~~ all佐 ~~ </center>
+## all佐
 ---
 
 ###  [修佐] - [《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
@@ -22,7 +22,7 @@
 * *第三次，马斯坦十分钟内只回复了他三句“嗯”以及一声漫长而微弱的烦躁叹息，休斯不得不在电话那端警觉了起来。*
 
 ---
-### <center> ~~ 焰钢 ~~ </center>
+## 焰钢
 ---
 ### [焰钢] - [《魔法游戏》 - A Wicked Game](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html)
 * 章节目录：
