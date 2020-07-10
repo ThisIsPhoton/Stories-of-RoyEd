@@ -7,7 +7,7 @@
 ---
 ## <center> 目录 </center>
 ---
-## [焰钢](#焰钢)
+## [焰钢](https://thisisphoton.github.io/Stories-of-RoyEd/royed.html)
 ## [修佐](#修佐)
 ## [哈佐](#哈佐)
 
