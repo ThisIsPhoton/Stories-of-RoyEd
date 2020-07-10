@@ -12,18 +12,19 @@
 
 
 ---
-## all佐
----
 
-###  [修佐] - [《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
+## 修佐/哈佐
+###  [《时光》](https://thisisphoton.github.io/Stories-of-RoyEd/time.html) 
 * *这只开始于一个吻。只是一个混杂着须后水跟汗水，阳光，操场的沙土和青草，闷热的宿舍跟午后无聊的时光。*
 
+---
+## 哈佐
 ### [all佐/哈佐] - [《愿君入梦》](https://thisisphoton.github.io/Stories-of-RoyEd/dream.html)
 * *第三次，马斯坦十分钟内只回复了他三句“嗯”以及一声漫长而微弱的烦躁叹息，休斯不得不在电话那端警觉了起来。*
 
 ---
+
 ## 焰钢
----
 ### [翻译] - [《魔法游戏》 - A Wicked Game](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html)
 * 章节目录：
   * [第一章](https://thisisphoton.github.io/Stories-of-RoyEd/a-wicked-game/01.html) 
